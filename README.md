@@ -10,11 +10,11 @@
 
 [Al-Jazari](https://en.wikipedia.org/wiki/Al-Jazari)
 
-[Katherine Johnson]()
+[Katherine Johnson](https://en.wikipedia.org/wiki/Katherine_Johnson)
 
 [Alan Turing](https://en.wikipedia.org/wiki/Alan_Turing)
 
-[Dorothy Vaughan]()
+[Dorothy Vaughan](https://en.wikipedia.org/wiki/Dorothy_Vaughan)
 
 
 
